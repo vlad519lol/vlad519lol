@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @vlad519lol
+- 👀 I’m interested in Hacking games and make it better than you can
+- 🌱 I’m currently not learning
+- 💞️ I’m not looking to collaborate
+- 📫 How to reach me PocikForever#1371
